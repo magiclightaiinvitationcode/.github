@@ -3,7 +3,6 @@
 <head>
 <meta charset="UTF-8">
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
-<title>MagicLight AI Invitation Code: ji9u0gfr0 (Get Bonus Credits Today)</title>
 <meta name="description" content="Use the latest MagicLight AI Invitation Code: ji9u0gfr0 to unlock available referral rewards and bonus opportunities when creating your account.">
 </head>
 <body>
